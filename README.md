@@ -12,6 +12,6 @@ https://drive.google.com/drive/folders/1x13hAOhGHtKpdPBAmTfnaLi-xPMtLWDQ?usp=sha
 2113211037 มัทรินทร์ ศุทธชัย    :     ทำโมเดลตัวละคร, ทำคลิปก่อนเริ่มเกม, ออกแบบ icon skill\
 -----------------------------------------
 **Video Review***\
-
+https://drive.google.com/drive/folders/14JyeK2-47t1jHY_4rBADmDEUa2rHgRSN?usp=sharing
 -----------------------------------------
 
